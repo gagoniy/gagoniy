@@ -5,9 +5,10 @@
 <hr>
 <details align="center"><summary><sup>info</sup></summary>
 <img src="https://64.media.tumblr.com/1fe825b8be3d9a3ffaff3139d777b445/74272c43246f21fc-b7/s75x75_c1/c82cc5f8303a2ce159325e74870945560b79d26c.gifv"/><br>
-<table><b>dni;</b><br>
+<summary><ins>dni;</ins><br>
 <p>loli/shota/kodocons, under 13, "pro-life", zionist/pro-israel<br>
 <br>
-<b>thin ice*;</b><br>
-under 15, dr. bright users</table><br>
+<ins>thin ice<a href="#footnote-1"><sup>[1]</sup></a>;</ins><br>
+under 15, dr. bright users<br>
+<p id="footnote-1"><sup>[1]</sup> this doesnt mean you cant interact with me!! making casual conversation is ok, its just unlikely that ill friend you</p></summary>
 </p></details>
