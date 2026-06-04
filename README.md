@@ -6,9 +6,11 @@ wip.....
 <details align="center"><summary><sup>info</sup></summary>
 <img src="https://64.media.tumblr.com/1fe825b8be3d9a3ffaff3139d777b445/74272c43246f21fc-b7/s75x75_c1/c82cc5f8303a2ce159325e74870945560b79d26c.gifv"/><br>
 <ins>dni;</ins><br>
-<p>loli/shota/kodocons, under 13, "pro-life", zionist/pro-israel<br>
+<p>loli/shota/kodocons, under 13, "pro-life",<br>
+zionist/pro-israel<br>
 <br>
 <ins>thin ice;</ins><a href="#footnote-1"><sup>[1]</sup></a><br>
 under 15, dr. bright users<br>
-<p id="footnote-1"><sup>[1]</sup> this doesnt mean you cant interact with me!! making casual conversation is ok, its just unlikely that ill friend you</p>
+<p id="footnote-1"><sup>[1]</sup> <sub>this doesnt mean you cant interact with me!! making <br>
+casual conversation is ok, its just unlikely that ill friend you</sub></p>
 </p></details>
